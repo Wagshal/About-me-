@@ -28,6 +28,6 @@ Baruch Hashem, I see a blessing in my labor!
 
 I'm actively seeking a challenging position where I can apply my skills and leverage my diverse experience in the data or web world. If you have an opportunity or a project you'd like to discuss, please feel free to contact me.
 
-📫 You can contact me via email at 3131vag@gmail.com
+📫 You can contact me via email at 3131Eisen@gmail.com
 
 Let's build amazing world together!
